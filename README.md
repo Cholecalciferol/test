@@ -1,7 +1,4 @@
 # test
-낙서 재밌다
-sdjkhfskdjhfhdfjkhsdfjkhsdjfhjksdf
-sdfhyuishdfjhsdjkfhjksdhfkjhfkjhsfdkj
-\skjhfshdfhsdkjhfhakjhsdfkjhdsjkfhksjdhfjkashdfjkhsdfjhsdafjkhsjdkfhjsdhfjkshdfjkhsdkjfhjksdhfjhyfruiyhewfkjhnmvc
-hsdgfusiusd
+hgsdjhfgsdhjfgjhsadgfhdsgfjhsgdfhjgfsdjhgdfjhsdgfhgfdhgieruwgfih
+
 
